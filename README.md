@@ -1,6 +1,7 @@
 
 <img width="1000" height="130" alt="descarga" src="https://github.com/user-attachments/assets/b25192b6-5833-46d2-a328-422098a8c4b7" />
 <img width="2000" height="2000" alt="image" src="https://github.com/user-attachments/assets/7c5f9bd1-f221-4176-a1b1-17b4b667e0c9" />
+<img width="300" height="100" alt="_Friend_ Sticker for Sale by Mansi  D" src="https://github.com/user-attachments/assets/c01de177-09e3-4590-8745-a1716c34824e" />
 
 https://github.com/user-attachments/assets/c175a2fc-4bda-4cdd-9453-80023bf42616
 <!--
